@@ -1,1 +1,0 @@
-# giantinfotechsolutions.github.io
